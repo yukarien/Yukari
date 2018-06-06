@@ -1,2 +1,0 @@
-# Yukari
-KIMONO
